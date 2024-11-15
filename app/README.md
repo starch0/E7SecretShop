@@ -1,0 +1,1 @@
+Quick solution to refresh E7 Secret Shop. 
